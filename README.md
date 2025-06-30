@@ -29,15 +29,15 @@ Bot WhatsApp ini adalah program kecerdasan buatan AI (Artificial Intelligence) y
 
 ## 👤 Developer
 
-**Bot Ini Dikembangkan Oleh: [KaizenJX](https://github.com/KaizenJX)**  
+**Bot Ini Dikembangkan Oleh: [KaizenJX](https://wa.me/6288222909350)**  
 
 ---
 
 ## 📱 Sosmed
 
 **TikTok**
-[TikTok](https://tiktok.com/kaizennxj_)**  
+[TikTok](https://tiktok.com/kaizenxj_)
 **Instagram**
-[Instagram](https://Instagram.com/kaizenn09)**  
+[Instagram](https://Instagram.com/kaizenn09) 
 **LinkBio**
-[LinkBio](https://linkbio.co/Kaizenn09)**  
+[LinkBio](https://linkbio.co/Kaizenn09)  
