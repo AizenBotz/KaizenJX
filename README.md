@@ -35,8 +35,8 @@ Bot WhatsApp ini adalah program kecerdasan buatan AI (Artificial Intelligence) y
 
 ## 📱 Sosmed
 
-- **TikTok:** [TikTok](https://tiktok.com/kaizenxj_)
+- **TikTok:** [TikTok](https://tiktok.com/@kaizenxj_)
  
-- **Instagram:** [Instagram](https://Instagram.com/kaizenn09)
+- **Instagram:** [Instagram](https://Instagram.com/@kaizennnnn09)
   
 - **LinkBio:** [LinkBio](https://linkbio.co/Kaizenn09)
